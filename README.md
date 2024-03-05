@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @malaktony
-- 👀 I’m interested in you
-- 🌱 I’m currently learning how to love you
-- 💞️ I’m looking to collaborate on future plans
+- 👀 I’m interested in 
+- 🌱 I’m currently learning how t
+- 💞️ I’m looking to collaborate on f
 - 📫 How to reach me text
 - 😄 Pronouns: ...
 - ⚡ Fun fact: hehe
